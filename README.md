@@ -1,1 +1,1 @@
-I will be Sofware Engineer soon if I don't give up 
+I will be Sofware Engineer soon if I am ready to put in the work
